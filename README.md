@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Illust-emi
+- 👋 Hi, I’m @illust-emi
 - 👀 I’m interested in making things
 - 🌱 I’m currently learning UX design
 - 💞️ I’m looking to collaborate on fun cool stuff
